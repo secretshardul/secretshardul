@@ -4,4 +4,4 @@ Your kind cling to your flesh, as if it will not decay and fail you. One day the
 
 ...even in death I serve the Omnissiah.
 
-- r/Copypasta
+\- r/Copypasta
